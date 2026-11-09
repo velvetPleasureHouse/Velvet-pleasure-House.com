@@ -1,0 +1,2 @@
+# Velvet-pleasure-House.com
+Official website project for Velvet Pleasure House, an intimate wellness and pleasure-products brand.
